@@ -1,0 +1,1 @@
+atom kara kaita yo
